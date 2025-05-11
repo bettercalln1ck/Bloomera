@@ -1,2 +1,2 @@
 # Bloomera
-A new era of mental health and support.
+Grow Through What You Go Through.
